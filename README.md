@@ -1,16 +1,13 @@
-## Hi there 👋
+## Dấu hiệu rụng trứng
 
-<!--
-**dauhieurungtrung/dauhieurungtrung** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Nhận biết dấu hiệu rụng trứng là cơ sở để các cặp vợ chồng tính “ngày an toàn”, cũng như thời gian thích hợp nhất để thụ thai thành công. Điều này không hề là quá khó, kể cả đối với những chị em có chu kỳ kinh nguyệt không đều. 
 
-Here are some ideas to get you started:
+#dauhieurungtrung #cacdauhieurungtrung
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+https://dauhieurungtrung.com/
+
+https://vimeo.com/dauhieurungtrung
+
+https://www.youtube.com/@dauhieurungtrungcom
+
+https://www.pinterest.com/dauhieurungtrung/
